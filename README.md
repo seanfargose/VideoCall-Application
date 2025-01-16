@@ -11,4 +11,4 @@ Enhancing the communication experience, our application comes equipped with an i
 Need to present something? No problem! We'll demonstrate how to enable screen sharing, making remote presentations and collaboration a breeze.
 
 
-[Application Link](https://drive.google.com/file/d/177FHH61u55Y4gnluq9seyE2qVrBYCSgu/view?usp=sharing)# VideoCall-Application
+[Application Link](https://www.canva.com/design/DAGcX1pAOso/8laz-dYeaDK-g_8EYmD2sQ/view?utm_content=DAGcX1pAOso&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hfc5c873bfb)# VideoCall-Application
